@@ -14,3 +14,4 @@ Jason was Super cool
 or so he thought
 
 Jc struggled with this. 
+Jc Showed weeks his struggle
