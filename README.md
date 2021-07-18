@@ -12,3 +12,5 @@ When we were in college
 Jason was Super cool
 
 or so he thought
+
+Jc struggled with this. 
